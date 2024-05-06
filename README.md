@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on various data analyst projects
 - 📫 Reach me on sksarim.da@gmail.com or www.linkedin.com/in/sheikh-sarim-da
 - 😄 Pronouns: He/Him
+- 📌Location: Jamshedpur, Jharkhand
   
 
 <!---
